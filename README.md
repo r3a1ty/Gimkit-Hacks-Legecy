@@ -1,2 +1,6 @@
-# Gimkit-Hacks
-The best gimkit hacks you can find anywhere.
+The Best Gimkit Hacks That You Can Find
+
+Gamemodes :
+Trust No One
+Classic 
+
